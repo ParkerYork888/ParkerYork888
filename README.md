@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ParkerYork888
-- 👀 I’m interested in mlp, spiderman, gravity falls, the last kids on earth, shazam, meet the robinsons, back to the future
+- 👀 I’m interested in mlp, spiderman, gravity falls, the last kids on earth, shazam, meet the robinsons, back to the future, AJR
 - 🌱 I’m currently learning art and editing
 - 📫 How to reach me  https://www.instagram.com/spidey_senses_888/
 - 😄 Pronouns: he/him
